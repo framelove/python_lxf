@@ -1,1 +1,1 @@
-this is a word
+this is a word£¡it's my favorite.
